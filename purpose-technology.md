@@ -10,9 +10,7 @@ Balaji describes his idea of the ultimate purpose of technology in this essay:
 > 
 > — balajis.com (@balajis) [July 19, 2020](https://twitter.com/balajis/status/1284913201205764096?ref_src=twsrc%5Etfw)
 
-In an episode of [the North Star podcast by David Perell](https://perell.com/podcast/), he explains this idea further. Skip to 1:26:56 to listen, or open the transcript below to read.
-
-Transcript
+In an episode of [the North Star podcast by David Perell](https://perell.com/podcast/), he explains this idea further. Skip to 1:26:56 to listen, or read the transcript below to read.
 
 **David:** Why is life extension the essence of technology?  
   
